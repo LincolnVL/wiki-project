@@ -1,0 +1,1 @@
+Ik ben Lincoln Van Lombergen, 17 jaar oud en ik wil meer vertellen over mijn favoriete game op he moment, Persona 5.
